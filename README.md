@@ -1,2 +1,0 @@
-# JiangWu
-JiangWu
